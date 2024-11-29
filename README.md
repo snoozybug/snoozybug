@@ -19,13 +19,13 @@
 
 <br><br>
 
-![image](https://64.media.tumblr.com/bd1c7c76589cf4b1154e9c24775f3e97/08b6024acb610772-33/s640x960/1a7930624edd31ac4fb4f49785558d2e8935b2a4.gif)
+![image](https://64.media.tumblr.com/8a3866b377e3574f7d215448f0e6e05d/ffb5953d6bd50863-f8/s2048x3072/bd48bb9067741bcd305d8f99487a441798645dd0.png) 
 
-  ![image](https://64.media.tumblr.com/8a3866b377e3574f7d215448f0e6e05d/ffb5953d6bd50863-f8/s2048x3072/bd48bb9067741bcd305d8f99487a441798645dd0.png) my pookie wookie [here](https://github.com/insecticidal) ![image](https://64.media.tumblr.com/8a3866b377e3574f7d215448f0e6e05d/ffb5953d6bd50863-f8/s2048x3072/bd48bb9067741bcd305d8f99487a441798645dd0.png)
+  ![image](https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3b058a9e8494a6de-ef/s75x75_c1/6f3719051cfe8d1c0280e48a63928d4a9dc94819.gif) my pookie wookie [here](https://github.com/insecticidal) ![image](https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3b058a9e8494a6de-ef/s75x75_c1/6f3719051cfe8d1c0280e48a63928d4a9dc94819.gif)
 
 <br>
 
-![image](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/215cf8b0e7f43249-6c/s540x810/50d7513b033f2b14b33014fd42f383851cebf2e7.gif)
+![image](https://64.media.tumblr.com/8a3866b377e3574f7d215448f0e6e05d/ffb5953d6bd50863-f8/s2048x3072/bd48bb9067741bcd305d8f99487a441798645dd0.png) 
 
 <br> 
 
