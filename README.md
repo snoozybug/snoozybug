@@ -2,14 +2,11 @@
 	
   ![image](https://64.media.tumblr.com/245fc7eb3367c37db6255973b0420039/ed80303f1c29123b-fb/s500x750/d24ab74fef797c5fa42872f2fd74e39d6b71ab35.gif)
 
-  host's name is climber/rem!
+  hi im rem
 
 <br>
 
-  we're cool and awesome and we get all the girls
-
-
-  if we have fict in our name, that is a fictive, we have did
+  i'm cool and awesome and we get all the girls
 
 
   no strict dni besides no endos i don't care i'll just block if i don't liek u.
