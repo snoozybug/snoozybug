@@ -4,7 +4,7 @@
 
   hi im rem
 
-  i'm cool and awesome and we get all the girls
+  i'm cool and awesome and i get all the girls
 
 
   no strict dni besides no endos i don't care i'll just block if i don't liek u.
