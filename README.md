@@ -4,8 +4,6 @@
 
   hi im rem
 
-<br>
-
   i'm cool and awesome and we get all the girls
 
 
