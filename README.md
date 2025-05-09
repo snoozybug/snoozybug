@@ -47,5 +47,3 @@ my beautiful girlfriend that i am annoying about [here!!!](https://github.com/in
 ![](https://64.media.tumblr.com/96e69a036b4c2e84a464fe9ad41ae495/6f072ea04e7b6c72-db/s100x200/2fc6d547fa9d516036636e8c3a2b57b88f892f0e.gif)
 ![](https://64.media.tumblr.com/9f2a3b751727b75efdd3104867342741/430287f45c8133f7-0e/s100x200/406281ca5626d1263b3f4ac22bc3cf0f56d4bcc7.gif)
 ![](https://64.media.tumblr.com/da2dd4094e44c354c52d03b3ba8a6ecc/430287f45c8133f7-20/s100x200/5ebb26b002c4ef67e2fc4907a081e001101a12b2.png)
-
-4525 <3
