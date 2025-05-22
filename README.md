@@ -18,10 +18,6 @@ no strict dni, besides endogenic systems lol ^.^ <br>
 would prefer if interactions stayed 16+ at least<br>
 <br>
 
-![Heart](https://64.media.tumblr.com/3e99fec09b177fd7ae99095ef3e8ce58/a21613f2eb57a647-49/s75x75_c1/65ddd00ac471c961e865d2af5da7b96cfbf4d8ec.gif) 
-my beautiful girlfriend that i am annoying about [here!!!](https://github.com/insecticidal) <3 
-![Heart](https://64.media.tumblr.com/3e99fec09b177fd7ae99095ef3e8ce58/a21613f2eb57a647-49/s75x75_c1/65ddd00ac471c961e865d2af5da7b96cfbf4d8ec.gif)
-
 <br> </br>
 ![divider](https://64.media.tumblr.com/3178f959ed578728853ff43a29be927c/a1e905b5d5897aa8-25/s400x600/7c73a7b0c5344ebab01903f380b6673d6cbaa6b8.gif)
 <br> </br>
