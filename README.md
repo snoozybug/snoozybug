@@ -17,8 +17,6 @@ feel free to read my strawpage for more info about me!
 no strict dni, besides endogenic systems lol ^.^ <br>
 would prefer if interactions stayed 16+ at least<br>
 <br>
-
-<br> </br>
 ![divider](https://64.media.tumblr.com/3178f959ed578728853ff43a29be927c/a1e905b5d5897aa8-25/s400x600/7c73a7b0c5344ebab01903f380b6673d6cbaa6b8.gif)
 <br> </br>
 
