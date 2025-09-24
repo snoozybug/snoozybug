@@ -1,3 +1,3 @@
 remaking this soon <br>
-rem | 18 <br>
-play cry of fear.
+just dont like pedophilia or incest and we'll be cool <br>
+also play cry of fear.
