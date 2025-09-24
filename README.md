@@ -9,7 +9,7 @@ hi i'm rem
 18, it/they <br>
 <br>
 ![](https://64.media.tumblr.com/cd6f4d6da7e44ac5b9c65973dbaf5885/eca8b10a97918538-9b/s75x75_c1/9c66677d63678f7194aa582e2addd936012e5b3b.gif)
-feel free to read my strawpage for more info about me!
+i'm armed and overdosing on antipsychotics
 ![](https://64.media.tumblr.com/cd6f4d6da7e44ac5b9c65973dbaf5885/eca8b10a97918538-9b/s75x75_c1/9c66677d63678f7194aa582e2addd936012e5b3b.gif)
 
 ![divider](https://64.media.tumblr.com/3178f959ed578728853ff43a29be927c/a1e905b5d5897aa8-25/s400x600/7c73a7b0c5344ebab01903f380b6673d6cbaa6b8.gif)
