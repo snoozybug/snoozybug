@@ -1,2 +1,2 @@
 read rentry if you want <br>
-also play cry of fear.
+i dont have a dni, if i dont like you i make fun of you simple as that
