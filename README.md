@@ -1,2 +1,2 @@
 read rentry if you want <br>
-i dont have a dni cuz they dont work, if i dont like you i make fun of you simple as that
+i dont have a dni cuz they dont work, if u like shit like pedophilia and incest im making fun of you
