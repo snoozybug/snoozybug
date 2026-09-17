@@ -1,4 +1,3 @@
-"and oh, what a beautiful creature! / and oh, i'll save the world with my procedures!" <br><br>
 i like alot of things <br>
 usually sitting by my friends/people-watching, feel free 2 chat!!
 <br><br>
