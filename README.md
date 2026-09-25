@@ -4,7 +4,7 @@
   <br><br>
     <img height="250" alt="image" src="https://64.media.tumblr.com/1dd37b8e05c4c1fc32353a578eaeb68a/0c9250875314b0b9-79/s640x960/c92f41075f9039027a0d714714062eeb1d15fa3b.gif" />
     <img height="250" alt="image" src="https://64.media.tumblr.com/163247975368f5b90e8694b349b9625c/89211058f80bd898-6d/s400x600/7ea9931cbe8555765ac5e372c6916b1e6a8b81fb.gif" />
-  <br> play minecraft story mode [x](https://www.mcsmmegathread.org/)
+  <br> play minecraft story mode
   <br><br>
     <img height="50" alt="stamp" src="https://64.media.tumblr.com/112d27b5fc9c72c4e8aa890c97116309/dd35cac535c01b5d-2d/s100x200/a2fa350bf46f8d2b381308624198c67132f0e089.png" />
     <img height="50" alt="stamp" src="https://64.media.tumblr.com/d9d452a4c54fb13d19c22837c7fcc753/048683f8fad65ece-6f/s100x200/019974c32fdbeba8601c234f34af43ff7825e0bb.gif" />
