@@ -4,7 +4,7 @@
   usually sitting by my friends (in following tab)/people-watching, feel free 2 chat!!
   <br><br>
     <img height="250" alt="image" src="https://64.media.tumblr.com/1dd37b8e05c4c1fc32353a578eaeb68a/0c9250875314b0b9-79/s640x960/c92f41075f9039027a0d714714062eeb1d15fa3b.gif" />
-    <img height="250" alt="image" src="https://github.com/user-attachments/assets/ddb992bd-df76-4b1a-bccf-06f1690c2e05" />
+    <img height="250" alt="image" src="https://github.com/user-attachments/assets/b1692998-ab01-41ee-977b-877b8fde7b73" />
   <br> play minecraft story mode
   <br><br>
     <img height="50" alt="stamp" src="https://64.media.tumblr.com/112d27b5fc9c72c4e8aa890c97116309/dd35cac535c01b5d-2d/s100x200/a2fa350bf46f8d2b381308624198c67132f0e089.png" />
