@@ -1,7 +1,7 @@
 <p align="center">
   <img width="250" alt="image" src="https://64.media.tumblr.com/6ebdce4944864fde290b3928bfeebdb5/921b2f4226f36726-9e/s1280x1920/38c6d520592b5d2f3cbf905b9bb4224001fd66cd.png" /><br>
   i like alot of things <br>
-  usually sitting by my friends (in following tab)/people-watching, feel free 2 chat!!
+  usually sitting by my buddies (in following tab)/people-watching, feel free 2 chat!!
   <br><br>
     <img height="250" alt="image" src="https://64.media.tumblr.com/1dd37b8e05c4c1fc32353a578eaeb68a/0c9250875314b0b9-79/s640x960/c92f41075f9039027a0d714714062eeb1d15fa3b.gif" />
     <img height="250" alt="image" src="https://github.com/user-attachments/assets/b1692998-ab01-41ee-977b-877b8fde7b73" />
